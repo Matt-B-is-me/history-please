@@ -8,13 +8,13 @@ Canadians had never before seen anyone like Pierre Elliott Trudeau in the House 
 
 #Pierre Trudeau's son, Justin Trudeau, has attempted to follow in his farther's footsteps but has however backslid into a hypocritical relationship with popular culture.
 
-![Find more information here.](https://torontosun.com/opinion/columnists/goldstein-trudeau-joins-climate-protest-against-himself)
+[Newspaper article on Climate March](https://torontosun.com/opinion/columnists/goldstein-trudeau-joins-climate-protest-against-himself)
 
 Following the info above, Justin Trudeau, the current PM (2020) has advocated for climate change not by instuting preventative measures against pollution, but simply marches to show 'solidarity'. Likewise his failure to prevent, or his willingness to allow, land acclamation and forced pipelines of non-treaty land
 
-https://globalnews.ca/news/6560125/timeline-wetsuweten-pipeline-protests/
+[Newspaper article on Pipeline Timeline]https://globalnews.ca/news/6560125/timeline-wetsuweten-pipeline-protests/
 
-\![Alt Text](http://www.theglobeandmail.com/resizer/BRqj7iQZJpbSMcG5_yX3PjL_N1c=/3021x0/filters:quality(80)/arc-anglerfish-tgam-prod-tgam.s3.amazonaws.com/public/WLGMXOELMBEJHBBYTYER4Y65K4.jpg):*
+![image](http://www.theglobeandmail.com/resizer/BRqj7iQZJpbSMcG5_yX3PjL_N1c=/3021x0/filters:quality(80)/arc-anglerfish-tgam-prod-tgam.s3.amazonaws.com/public/WLGMXOELMBEJHBBYTYER4Y65K4.jpg):*
 
 
-"Unsure if this will work"
+"Unsure if this will work"#2 trying intext links
